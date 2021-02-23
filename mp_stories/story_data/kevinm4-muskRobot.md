@@ -1,0 +1,1 @@
+Musk is on the ground after getting his ankles broken. Determined to still play good defense, he calls upon his Model S, Model 3, Model X, and Model Y. The combine into a MegaModel and shuts down Curry. Lincoln gets the rebound and lands a nasty dunk. The game is now over.

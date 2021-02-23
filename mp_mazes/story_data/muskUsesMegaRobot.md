@@ -1,0 +1,1 @@
+Musk summons his MegaRobot which consists of his Model S, Model 3, Model X, and Model Y. The MegaRobot had flamethrowers and burned the scoreboard on accident while trying to shoot. Without a scoreboard, the game cannot continue and is now over.
